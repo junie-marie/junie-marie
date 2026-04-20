@@ -8,4 +8,4 @@
 - 🌱 I’m currently expanding my HPC and physics background (Classical Mechanics, QM, GR)
 - 💬 Ask me about my studies or my past/**current research**!
 - 📧 How to reach me: **junipermarierania@gmail.com**
-- 🌐 Check out my website: **www.philiprahal.com**
+- 🌐 Check out my website: **https://www.juniper-marie.com/**
